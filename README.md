@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harvooo
 - 👀 I’m interested in linux
 - 🌱 I’m currently learning java & go
-- 💞️ I’m looking to collaborate on ur ma
+- 💞️ I’m looking to collaborate with ur ma
 - 📫 How to reach me 🤷
